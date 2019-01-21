@@ -1,1 +1,1 @@
-lingoooo
+Lingo
